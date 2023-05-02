@@ -1,0 +1,1 @@
+# SixeZ-BetterDiscord-Ban-List
